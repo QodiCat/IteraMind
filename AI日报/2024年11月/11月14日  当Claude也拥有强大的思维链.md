@@ -21,7 +21,7 @@ https://github.com/richards199999/Thinking-Claude/tree/main
 
 真的是太酷了
 
-## 1.2 
+
 
 
 
